@@ -1,4 +1,4 @@
-# 
+# Avancé 1Password préréglages pour Mac OS | Sécurisé 1Password préréglages pour PC Windows. Avec journal des transactions et identification de l'empreinte numérique — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
